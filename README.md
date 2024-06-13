@@ -3,7 +3,7 @@
 &nbsp;&nbsp;&nbsp;
 
 
-<p align="center"> ❤️ technology lover. <br><br> 
+<p align="center"> ❤️ technology Lover. <br><br> 
 Learner venturing to understand this world that leaves anyone disturbed and dazzled at the same time.</p>&nbsp;
 
 <div  align="center" style="margin-bottom:100px">
